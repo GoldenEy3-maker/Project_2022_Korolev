@@ -1,1 +1,1 @@
-https://app.diagrams.net/#G15vE5Z20mZlfnDamwv3VcHiKoxfFUSmqk
+https://www.figma.com/file/zGtx2zKyXRanhGVCD6WV3d/%D0%A0%D0%B0%D0%B7%D1%80%D0%B0%D0%B1%D0%BE%D1%82%D0%BA%D0%B0-%D0%BA%D0%BE%D0%B4%D0%B0?node-id=63%3A533&t=ZITFFfeRe0OknPoC-1
